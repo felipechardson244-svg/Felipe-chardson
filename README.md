@@ -29,4 +29,4 @@ programação e desenvolvimento de software.
 
 ## 📫 Contato
 
-- LinkedIn: SEU_LINK
+- LinkedIn: www.linkedin.com/in/felipe-chardson-429a3137b
